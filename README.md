@@ -1,0 +1,1 @@
+# Detedt-R
